@@ -1,2 +1,2 @@
-# La-tecnolog-a-aplicada-al-mejoramiento-del-suelo
+# La-tecnología-aplicada-al-mejoramiento-del-suelo
 Al hablar de la pérdida de la fertilidad del suelo se vio que, después de más de un siglo de cultivos ininterrumpidos sin devolverles nada, nuestros suelos presentan síntomas de agotamiento que se reflejan en los relativamente bajos rendimientos de los cultivos tradicionales. A pesar de ello, lamentablemente, el empleo de fertilizantes y otras prácticas agrícolas mejoradoras todavía no han alcanzado en la Argentina la importancia que corresponde frente a la significación de la producción agrícola para su economía. 
